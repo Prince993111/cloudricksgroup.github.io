@@ -1,1 +1,1 @@
-# cloudricks.com
+# qt.com
